@@ -6,5 +6,5 @@
 - 📫 How to reach me: rachelleycha@gmail.com
 - ⚡ Fun fact: I love to rock climb!
 
-Check Out My Website: [rachellecha.github.io]
+Check Out My Website: [rachellecha.github.io] (rachellecha.github.io)
 
